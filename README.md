@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SathishVellaiyan
+- 👀 I have experiance in Technical writing.
+- 🌱 I’m currently learning Team/project handling.
+- 💞️ I’m looking to explore myself as a technical writer in different industries.
+- 📫 Reach me through sathish.ame@gmail.com / +919791997541
